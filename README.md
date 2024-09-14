@@ -1,4 +1,7 @@
-## i do
+## i do mods
+
+
+commissions at @jeducklet on discord
 
 <!--
 **Corrinedev/Corrinedev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
